@@ -1,3 +1,4 @@
 # GEOG594-Bonnie
-Bonnie Flynn
-GEOG594-Bonnie URL 
+1. Bonnie Flynn
+2. GEOG594-Bonnie URL 
+3. 
